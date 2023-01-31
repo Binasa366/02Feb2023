@@ -54,3 +54,5 @@
 ![](https://sun9-66.userapi.com/impf/c622826/v622826768/f5ef/E2420wh_thM.jpg?size=604x522&quality=96&sign=fd2d90113acba065b189e911f93d9f75&type=album)
 
 ## *СПАСИБО ЗА ВНИМАНИЕ!*
+
+Запись была создана без каких-либо конфликтов
